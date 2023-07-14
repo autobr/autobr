@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @autobr
 - 👀 I’m interested in Unity
 - 🌱 I’m currently learning Unity
-- 💞️ I’m looking to collaborate on mothing (for now)
+- 💞️ I’m looking to collaborate on nothing (for now)
 - 📫 How to reach me 
 - uhhhhhhh here's my discord I guess 
 - autobr#5671
